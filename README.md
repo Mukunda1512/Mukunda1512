@@ -4,7 +4,7 @@
 
 
 😄Im a passionate and driven individual with a strong foundation in technology, web development, and software engineering.<br/>
-🌟  My Interests: Cinema, travel, and astronomy.<br/>
+
 🌱 I’m currently looking for opportunities in  software field, thrive in team environments, and contribute to projects that value hard work and collaboration. i am Skilled in Web Development and Design.<br/>
 ### 📫 Let’s connect and build something awesome!
 
